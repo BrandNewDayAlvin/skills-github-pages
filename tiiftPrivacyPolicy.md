@@ -2,7 +2,7 @@
 
 ## Privacy Policy
 
-###P rivacy Policy
+### Privacy Policy
 
 ## If you see this line, it means that WE ARE NOT COLLECTING ANY TYPE OF YOUR INFORMATION WITH THIS VERSION OF THE APP. THERE'S NO NEED TO READ THE FOLLOWING CONTENT.
 
