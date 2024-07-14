@@ -1,6 +1,6 @@
-# tiift - THE TIME LEDGER
+# Privacy Policy
 
-## Privacy Policy
+## tiift - THE TIME LEDGER
 
 ### Privacy Policy
 
